@@ -1,2 +1,1 @@
-www.instagram/com-nasso_1927
-000000
+instagram/com-nasso_1927
